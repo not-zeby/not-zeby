@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @not-zeby, nice to meet you!
+- 👋 Hi, I’m Sebastian, nice to meet you!
 - 📍 Tübingen, Germany
 - ⚕️ Physician & Anatomist
 - 💻 Curious about what I'm doing: https://sectio-chirurgica.de
